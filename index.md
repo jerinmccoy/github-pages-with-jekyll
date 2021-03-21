@@ -1,3 +1,6 @@
-# Welcome to my blog
+# A return to the southern states...
 
-I'm glad you are here. I plan to talk about ...
+Years back, I chronicled my adventures living in Mississippi and Louisiana. The excitement continues as I navigate the wild lands of Florida!
+
+----
+Check back here weekly for my latest shenanigans
